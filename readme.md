@@ -1,1 +1,1 @@
-# Registar samostalnih umetnika
+# Independent Artists Registry
